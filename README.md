@@ -1,2 +1,2 @@
 # Brand
-Brand Hub of Polakdot Play
+Brand Hub of Polkadot Play
